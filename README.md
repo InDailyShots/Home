@@ -5,8 +5,7 @@
 ---
 ![image-imx](https://scontent.fdel1-1.fna.fbcdn.net/v/t1.0-0/p280x280/16996090_1922135064668655_7174494136777359042_n.png?oh=12641d3ec0de7326de82f7ba4332ee4b&oe=592C74D8)
 
-## 1 . The iconic NOKIA 3310 is back.
-Relaunched at MWC-2017
+## 1 . The iconic NOKIA 3310 is back. Relaunched at MWC-2017
 ---
 ![image-image1](https://scontent.fdel1-1.fna.fbcdn.net/v/t1.0-0/p261x260/16938699_1920913244790837_6801040572494713571_n.png?oh=cd1db0fb8b5333b34e0d42397a3938ee&oe=59358714)
 
